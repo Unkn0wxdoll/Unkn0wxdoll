@@ -9,3 +9,5 @@ Pony town info and other stuff
 -I'm honestly really horrible at messaging first, so please understand that, it's not that I don't like you.
 
 -Dni: Basic dni / under 11 years old / Alfred's Playhouse fans/stans/enjoyers.
+
+![alt text](https://i.pinimg.com/564x/b3/b9/d6/b3b9d65931f7fad0be2a5161c204fe94.jpg)
