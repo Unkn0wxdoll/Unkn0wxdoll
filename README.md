@@ -10,8 +10,6 @@ Pony town info and other stuff
 
 -Dni: Basic dni / under 11 years old / Alfred's Playhouse fans/stans/enjoyers.
 
-https://retrospring.net/@Unkn0wxdoll
-
 
 
 ![alt text](https://i.pinimg.com/564x/b3/b9/d6/b3b9d65931f7fad0be2a5161c204fe94.jpg)
