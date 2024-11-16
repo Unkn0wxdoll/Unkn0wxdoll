@@ -12,7 +12,7 @@
 
 > I'm honestly really horrible at messaging first, so please understand that, it's not that I don't like you.
 
-> Dni: Basic dni / under 11 years old / Alfred's Playhouse fans/stans/enjoyers.
+> Dni: Basic dni / under 13 years old / Alfred's Playhouse fans/stans/enjoyers.
 
 
 
