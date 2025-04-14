@@ -12,8 +12,6 @@
 > sometimes I don't reply to various messages but that's because I don't know how to reply/react to them
 
 
-> I'm honestly really horrible at messaging first, so please understand that, it's not that I don't like you.
-
 > my spacehey https://spacehey.com/profile?id=1855810
 
 > Dni: Basic dni / under 13 years old / Alfred's Playhouse fans/stans/enjoyers.
