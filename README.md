@@ -6,7 +6,7 @@
 
 > True neutral 5w4
 
-> You can int, but I do prefer if you could whisper to me instead of a normal interaction because sometimes I can be afk/or I get nervous when I interact in public chat. ( usually I am sleeping when I am afk )
+> You can int, but I do prefer if you could whisper to me (Priv chat) instead of writing in public chat because sometimes I can be afk/or I get nervous when I interact in public chat. ( usually I am sleeping when I am afk )
 
 
 > sometimes I don't reply to various messages but that's because I don't know how to reply/react to them
