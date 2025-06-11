@@ -14,7 +14,7 @@
 
 > my spacehey https://spacehey.com/profile?id=1855810
 
-> Dni: Basic dni / under 13 years old / Alfred's Playhouse fans/stans/enjoyers / Proshippers / actively hate on my interests ( just don't do it around me).
+> Dni: Basic dni / under 13 years old / Alfred's Playhouse fans/stans/enjoyers / Dark/Proshippers / actively hate on my interests ( just don't do it around me).
 
 
 
