@@ -6,10 +6,13 @@
 
 > True neutral 5w4
 
-> You can int, but I do prefer if you could whisper to me (Priv chat) instead of writing in public chat because sometimes I can be afk/or I get nervous when I interact in public chat. ( usually I am sleeping when I am afk )
+> w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk)
 
+> Please do not send me a friend request if you didn't interact with me, I'm most likely to decline it 
 
 > sometimes I don't reply to various messages but that's because I don't know how to reply/react to them
+
+> Mind you, english is not my first language so I may make spelling/grammar mistakes
 
 
 > my spacehey https://spacehey.com/profile?id=1855810
