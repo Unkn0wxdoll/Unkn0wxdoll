@@ -21,7 +21,6 @@
 
 
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/68eeb91c-f351-45c1-9268-6153f884a990" />
-> N.1 Cupidboarder shipper
 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f699777b-a954-4d97-a2d9-6be88a2c25c8" />    <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fa582ece-092b-4eba-8147-75e4e3f257c6" />
