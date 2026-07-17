@@ -4,7 +4,7 @@
 
 <img src="https://i.pinimg.com/originals/7d/18/b5/7d18b5a50e47e4059ab24a2de18eaf70.gif"/>
 
-> True neutral 5w4 sp/sx 549 RLOAI
+> True neutral 5w4 sp/sx 549 [R]LoA/I/
 
 > w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk)
 
