@@ -8,7 +8,7 @@
 
 > True neutral 5w4 sp/sx 549 [R]LoA/I/ melan-phleg
 
-> w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk)
+<font color="#4C9BF7FF"> w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk) </font>
 
 > Please do not send me a friend request if you didn't interact with me, I'm most likely to decline it 
 
