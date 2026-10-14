@@ -6,7 +6,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=4C9BF7&width=435&lines=%C5%9Awiat+zamkni%C4%99ty%2C+rany+otwarte.)](https://git.io/typing-svg)
 
-$\color{#4C9BF7FF}{\textsf{lorem ipsum}}$ True neutral 5w4 sp/sx 549 [R]LoA/I/ melan-phleg
+$\color{#4C9BF7FF}{\textsf{True neutral 5w4 sp/sx 549 [R]LoA/I/ melan-phleg}}$ 
 
  $\color{#4C9BF7FF}{\textsf{w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk)}}$ 
 
