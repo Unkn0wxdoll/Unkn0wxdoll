@@ -17,7 +17,6 @@ $\color{#4C9BF7FF}{\textsf{sometimes I don't reply to various messages but that'
 $\color{#4C9BF7FF}{\textsf{Mind you, english is not my first language so I may make spelling/grammar mistakes}}$ 
 
 
-$\color{#4C9BF7FF}{\textsf{my spacehey https://spacehey.com/profile?id=1855810}}$ 
   ***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers / Terrible mouse***
 
 
