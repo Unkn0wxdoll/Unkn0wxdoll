@@ -20,9 +20,6 @@ $\color{#4C9BF7FF}{\textsf{Mind you, english is not my first language so I may m
 ***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers / Terrible mouse*** 
 
 
-<img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/68eeb91c-f351-45c1-9268-6153f884a990" />
-
-
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f699777b-a954-4d97-a2d9-6be88a2c25c8" />    <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fa582ece-092b-4eba-8147-75e4e3f257c6" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b3887425-866e-4677-b582-a3fb91fa7c86" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e2a67a39-c7f4-48a2-95a4-7113a7e73dfd" />
