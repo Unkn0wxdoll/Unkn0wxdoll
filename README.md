@@ -6,20 +6,19 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=4C9BF7&width=435&lines=%C5%9Awiat+zamkni%C4%99ty%2C+rany+otwarte.)](https://git.io/typing-svg)
 
-> True neutral 5w4 sp/sx 549 [R]LoA/I/ melan-phleg
+$\color{#4C9BF7FF}{\textsf{lorem ipsum}}$ True neutral 5w4 sp/sx 549 [R]LoA/I/ melan-phleg
 
  $\color{#4C9BF7FF}{\textsf{w2i on pony town, I prefer it this way because I always get nervous when I talk in public chat + I may sometimes be afk ( usually I'm sleeping when I'm afk)}}$ 
 
-> Please do not send me a friend request if you didn't interact with me, I'm most likely to decline it 
+$\color{#4C9BF7FF}{\textsf{Please do not send me a friend request if you didn't interact with me, I'm most likely to decline it }}$ 
 
-> sometimes I don't reply to various messages but that's because I don't know how to reply/react to them
+$\color{#4C9BF7FF}{\textsf{sometimes I don't reply to various messages but that's because I don't know how to reply/react to them}}$ 
 
-> Mind you, english is not my first language so I may make spelling/grammar mistakes
+$\color{#4C9BF7FF}{\textsf{Mind you, english is not my first language so I may make spelling/grammar mistakes}}$ 
 
 
-> my spacehey https://spacehey.com/profile?id=1855810
-
->  ***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers / Terrible mouse***
+$\color{#4C9BF7FF}{\textsf{my spacehey https://spacehey.com/profile?id=1855810}}$ 
+  ***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers / Terrible mouse***
 
 
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/68eeb91c-f351-45c1-9268-6153f884a990" />
