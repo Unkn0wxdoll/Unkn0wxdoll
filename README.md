@@ -17,7 +17,7 @@ $\color{#4C9BF7FF}{\textsf{sometimes I don't reply to various messages but that'
 $\color{#4C9BF7FF}{\textsf{Mind you, english is not my first language so I may make spelling/grammar mistakes}}$ 
 
 
-***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers / Terrible mouse*** 
+***Dni: Basic dni criteria / under 14 years old / Alfred's Playhouse fans / Dark/Proshippers / actively hate on my interests ( just don't do it around me) / Femboys / House of puso / yumeshippers ( the healthy ones are ok) / Terrible mouse*** 
 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f699777b-a954-4d97-a2d9-6be88a2c25c8" />    <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fa582ece-092b-4eba-8147-75e4e3f257c6" />
